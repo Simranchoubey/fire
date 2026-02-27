@@ -1,1 +1,1 @@
-# fire is dengerous
+# fire
